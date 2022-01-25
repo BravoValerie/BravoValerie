@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @BravoValerie
-- 👀 I’m interested in naps
-- 🌱 I’m currently learning on how to do this stuff
+- 👀 I’m interested in learning other activities
+- 🌱 I’m currently 
 - 💞️ I’m looking to collaborate on any project
 - 📫 How to reach me bravorecruiter@gmail.com
 
